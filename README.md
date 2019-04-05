@@ -7,6 +7,8 @@ List of things that Benjamin and Amanda plan to consume together
 - The Shining / Room 237
 - Falling Down
 - Kung Fu Hustle
+- Akira
+- Ghost in the Shell
 ### TV
 - Dirk Gentley's Hollistic Detective Agency
 - Star Trek: TNG (and movies)
@@ -15,6 +17,7 @@ List of things that Benjamin and Amanda plan to consume together
 - Gundam
 - Death Note
 - Classic Cartoons
+- One Punch Man
 ### Games
 - Pokemon
 - Mega Man
@@ -27,6 +30,10 @@ List of things that Benjamin and Amanda plan to consume together
 - Various tabletop games and RPGs
 - Bioshock
 - KotoR 1 & 2
+- Dark Souls
+- Bloodbourne
+- Castlevania
+- Secret of Mana
 
 ## Amanda's List
 ### Movies
@@ -84,6 +91,8 @@ List of things that Benjamin and Amanda plan to consume together
 - Cowboy Bebop
 - The Venture Brothers
 - Aqua Teen
+- Twin Peaks
 ### Games
 - Assassin's Creed 2
 - Mass Effect
+- Ultimate Alliance 1, 2, & 3
