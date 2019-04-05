@@ -39,6 +39,7 @@ List of things that Benjamin and Amanda plan to consume together
 - LotoR
 - Date Night
 - Gangs of New York
+- No Country for Old Men
 ### TV
 - The West Wing
 - Outlander
@@ -69,6 +70,7 @@ List of things that Benjamin and Amanda plan to consume together
 - Inglourious Basterds
 - Pulp Fiction
 - The Departed
+- The Big Lebowski
 ### TV
 - The League
 - Parks and Rec
